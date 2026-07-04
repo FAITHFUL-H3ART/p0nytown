@@ -4,7 +4,7 @@
 
 ꒰ㅤPLACESㅤ꒱
 
-— Always at the Dandy's World area ( under the mistletoe - on the tree , or at the small tree ) , i sometimes go to docks ! 
+— Always at the Dandy's World area ( under the mistletoe - on the tree , or at the small tree ) , i sometimes go to docks ! If im not at the Dandy's World area , just find me in docks . I'm sitting one of the trees there - prob waiting , with my friend/s , or just hangout alone -u- . 
 
 
 ꒰ㅤBEFORE  INT ㅤ꒱
